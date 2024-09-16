@@ -1,2 +1,3 @@
 ## Welcome to my site
-| Enjoy your stay |
+*Enjoy your stay*
+
