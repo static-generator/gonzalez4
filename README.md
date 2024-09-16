@@ -1,7 +1,8 @@
 # Welcome
 *Enjoy your stay*
 
-## My Hobbies
+### My Hobbies
+---
 I like:
 1. World War History
 2. Physchological Horror
