@@ -6,9 +6,8 @@
 ### About Me
 ---
 - Hi. My name is **Aeron**. My full name is **Aeron Dale A. Atole.**
-
-- I live in the **Philippines**. A *really* great country that definitely isn't ridiculed with corruption. 
-Well... we have nice looking beaches atleast. Nevermind, our sea got taken by China.
+- I live in the **Philippines**. A *really* great country that definitely isn't ridiculed with corruption (this is basically the average South East Asian country, if not all of them). Well, we have nice looking beaches atleast, right? 
+- I live in **Camarines Sur**. In the city of **Naga**. The city where people get trampled to death over a statue.
 
 
 ---
