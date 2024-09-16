@@ -7,6 +7,9 @@
 ---
 - Hi. My name is **Aeron**. My full name is **Aeron Dale A. Atole.**
 
+- I live in the **Philippines**. A *really* great country that definitely isn't ridiculed with corruption. 
+Well... we have nice looking beaches atleast. Nevermind, our sea got taken by China.
+
 
 ---
 ### My Hobbies
