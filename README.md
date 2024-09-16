@@ -1,3 +1,2 @@
-## Welcome to my site
-
-**test test test test**
+### Welcome to my site
+| Enjoy your stay |
