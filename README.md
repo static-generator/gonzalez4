@@ -9,7 +9,7 @@
 - I live in the **Philippines**, the archipelago in South East Asia.
 - I live in **Camarines Sur**. In the city of **Naga**.
 - My birthday is November, 5, 2009.
-- 
+- I am currently going through highschool in Ateneo De Naga.
 
 ---
 ### My Hobbies
